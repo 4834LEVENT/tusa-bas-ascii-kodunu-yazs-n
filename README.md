@@ -1,0 +1,1 @@
+# tusa-bas-ascii-kodunu-yazs-n
